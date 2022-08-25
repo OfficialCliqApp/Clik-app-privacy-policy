@@ -1,0 +1,1 @@
+# Clik-app-privacy-policy
